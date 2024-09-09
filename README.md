@@ -4,7 +4,7 @@ Meu nome é Ane Karoline Gomes de Souza
 
 - Estou esutudando na [Alura] (https://www.alura.com.br)
 - Estou me desenvolvendo na linguagem JavaScript
-- Utilizo esse espaço para a minha norganoização dos meus projetos desenvolvidos
+- Utilizo esse espaço para a minha organização dos meus projetos desenvolvidos
 
   ### Você entrar em contato comigo 📫
 
