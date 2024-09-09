@@ -10,6 +10,6 @@ Meu nome é Ane Karoline Gomes de Souza
 
   00001098808472sp@al.educacao.sp.gov.br
 
-  anekarolineggomes@gmail.com
+anekarolineggomes
 
 ![](https://tenor.com/pt-BR/view/bubu-dudu-bubu-dudu-bear-panda-gif-2132781642126111018)
