@@ -12,4 +12,4 @@ Meu nome é Ane Karoline Gomes de Souza
 
   anekarolineggomes
 
-![](https://tenor.com/pt-BR/view/bubu-dudu-bubu-dudu-bear-panda-gif-2132781642126111018)
+![](https://media.tenor.com/HZkpmoJmsSoAAAAj/bubu-dudu.gif)
