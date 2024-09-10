@@ -10,6 +10,6 @@ Meu nome é Ane Karoline Gomes de Souza
 
   00001098808472sp@al.educacao.sp.gov.br
 
-  anekarolineggomes
+  @anekarolineggomes
 
 ![](https://media.tenor.com/HZkpmoJmsSoAAAAj/bubu-dudu.gif)
